@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @qinxiaolin12321
+- 👀 I'm interested in global trade, I would like to be able to find all the wholesale websites of all the countries in the world, and then publish my products in all the wholesale websites in the world, and be able to find all the wholesalers in the world, and add them to my whatsapp or wechat, so as to better accomplish my business. global trade program.
+- 🌱 I'm currently learning global e-commerce business methods
+- 💞️ I'm looking to collaborate on global data analytics software and various artificial intelligence tools.
+- 📫 How to reach me . My phone number is +86 13550477314 My wechat:Hornor12321
